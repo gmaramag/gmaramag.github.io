@@ -1,3 +1,0 @@
----
-Gabrielle Maramag
----
