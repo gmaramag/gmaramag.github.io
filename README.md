@@ -1,2 +1,2 @@
 # Hi, I'm Gabby!
-I am a lab manager for the Michigan Neurogenetics and Developmental Psychopathology (MiND) Lab, directed by Dr. Luke Hyde, and the Translational and Developmental Neuroscience (TaD) Lab, directed by Dr. Christopher Monk. I hope to further develop my skills and professional network and to eventually pursue a PhD in clinical psychology. Let's connect!
+I'm interested how early adversity, neighborhood contexts, and social determinants of health “get under the skin” to confer risk and resilience for the development of mental health problems among youth. I'll be starting my PhD in Psychology (Behavioral and Cognitive Neuroscience) at Wayne State University this fall under the mentorship of Lana Ruvolo Grasser, PhD.
